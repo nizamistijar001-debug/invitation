@@ -1,2 +1,2 @@
 # riva-invitation
-A special invitation for Riva ❤️
+A special invitation ❤️
